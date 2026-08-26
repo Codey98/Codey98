@@ -32,5 +32,5 @@
 
 ### 📫 Get in touch
 
-- LinkedIn: [your link here]
-- Email: [your email here]
+- LinkedIn: www.linkedin.com/in/dipin-paremmel-sivanandan-a5579231
+- Email: dipinps000@gmail.com
